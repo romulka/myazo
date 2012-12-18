@@ -1,0 +1,1 @@
+Gyazo like private server
